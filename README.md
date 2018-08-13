@@ -1,0 +1,1 @@
+# Colocando-um-Bot-o-de-Compartilhamento-do-Pinterest-nas-Imagens-dos-seus-Posts-ao-Passar-o-Mouse-por
